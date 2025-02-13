@@ -7,7 +7,7 @@ In the ever-evolving landscape of online casinos and gaming platforms, the allur
   <tr>
     <th>✅ Product</th>
     <th>Promo Code</th>
-    <th>Exculise Bonus</th>
+    <th>Exclusive Bonus</th>
   </tr>
   <tr>
     <td>➡️ BCH.Games Promo Code</td>
